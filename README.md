@@ -19,3 +19,5 @@ Hepimiz bir tur destek ede biliriz. Kaynagi olmayan pull request leri göndermey
 | DÖNE KURT  |  Akevler Mah. Şehit İrfan Fansa Sok. Mertkan Apartmanı | Hatay  |Antakya   |   |  [@saaltinn](https://twitter.com/saaltinn/status/1623199544073760768) |+70 YAŞINDA|
 | YUNUS EMRE KURT |  Akevler Mah. Şehit İrfan Fansa Sok.  Mertkan Apartmanı | Hatay  |Antakya   |   |  [@saaltinn](https://twitter.com/saaltinn/status/1623199544073760768) |ÇOCUK 3-4|
 | 2 ÇOCUK |  YAVUZ SELİM  Mah. SEYDİ ÇAKMAK CAD. NO:91  | Adiyaman  |Merkez   | 0536 662 02 99  |  [@BabalaTv](https://twitter.com/BabalaTv/status/1623220658527150081) |Cocuk|
+| Eda Kahiloğulları |   Odabaşı mahallesi 2418.sokak oduncu apartmanı | Hatay  |Ankara   |  |  [@havileda](https://twitter.com/havileda/status/1623220743298326528) ||
+| Emre Aşkar |  Odabaşı mahallesi 2418.sokak oduncu apartmanı | Hatay  |Ankara   |   |  [@havileda](https://twitter.com/havileda/status/1623220743298326528) ||
