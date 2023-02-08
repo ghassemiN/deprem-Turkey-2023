@@ -1,0 +1,1 @@
+# deprem-Turkey-2023
