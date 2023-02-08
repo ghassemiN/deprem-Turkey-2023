@@ -1,5 +1,5 @@
 # deprem-Turkey-2023
-## Gecmis olsun Turkiye
+## Geçmiş Olsun Türkiye!
 ### Bu depoda daha hızlı takip edilebilmesi için enkaz altında hayatı tehlikede olan kişilerin bilgilerini toplayalım.
 
 Sosyal medialarda bir eziz canin enkaz altında kaldığına dair paylaşımlar görüyorum, bu bilgiler bir araya getirilirse takip açısından faydalı olabilir.
