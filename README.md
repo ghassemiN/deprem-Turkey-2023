@@ -2,7 +2,7 @@
 ## Geçmiş Olsun Türkiye!
 ### Bu depoda daha hızlı takip edilebilmesi için enkaz altında hayatı tehlikede olan kişilerin bilgilerini toplayalım.
 
-Sosyal medialarda bir eziz canin enkaz altında kaldığına dair paylaşımlar görüyorum, bu bilgiler bir araya getirilirse takip açısından faydalı olabilir.
+Sosyal medialarda yakinlarin enkaz altında kaldığına dair paylaşımlar görüyorum, bu bilgiler bir araya getirilirse takip açısından faydalı olabilir.
 
 Hepimiz bir tur destek ede biliriz. Kaynagi olmayan pull request leri göndermeyelim.
 
